@@ -12,3 +12,9 @@
 
 * Blaseball is the closest I've felt to joining a cult in at least two or three years now.
   [Nate Heininger, _The Short Game_, 1:55](http://www.theshortgame.net/240-blaseball/)
+
+* Blaseball is not a game of stasis. It is a game of blood & chaos.
+  [Cat Manning (@catacalypto)](https://twitter.com/catacalypto/status/1298119631165517824)
+
+* Blaseball is the best because it's the only sport where I have to look up which player's the dog and which player's the human.
+  [Cat Manning (@catacalypto)](https://twitter.com/catacalypto/status/1299757238102286336)
