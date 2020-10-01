@@ -18,3 +18,5 @@
 
 * Blaseball is the best because it's the only sport where I have to look up which player's the dog and which player's the human.
   [Cat Manning (@catacalypto)](https://twitter.com/catacalypto/status/1299757238102286336)
+
+* Blaseball is an absurdist, kind of whimsical simulation of baseball. [Sam Rosenthal, interviewed by David Greene, *NPR*](https://www.npr.org/transcripts/918080830)
