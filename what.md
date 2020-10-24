@@ -20,7 +20,7 @@
   [Cat Manning (@catacalypto)](https://twitter.com/catacalypto/status/1299757238102286336)
   
 * Blaseball is essentially an absurdist fantasy baseball league where its creators and fans alike collaborate to shape a fictional world. Part game, part social experiment, part existential horror, and entirely bizarre, Blaseball simulates a season of baseball every week at a rate of a game per hour.
-  [Carlos Zayas-Pons, The Paris Review ] (https://www.theparisreview.org/blog/2020/10/23/staff-picks-splorts-seers-and-sentences/)
+  [Carlos Zayas-Pons,_The Paris Review ] (https://www.theparisreview.org/blog/2020/10/23/staff-picks-splorts-seers-and-sentences/)
 
 * What makes Blaseball feel different is that the onus taken by fans to run with the ball is 100% celebrated and supported by the team behind the splort. And that freedom has led the fans to craft something much more organic, rich and unabashedly queer.
-  [Brian C. Bell, Outsports ] (https://www.outsports.com/2020/9/2/21409945/blaseball-game-band-lgbt-inclusion-mlb-nba-baseball-splort-landry-violence)
+  [Brian C. Bell,_Outsports_] (https://www.outsports.com/2020/9/2/21409945/blaseball-game-band-lgbt-inclusion-mlb-nba-baseball-splort-landry-violence)
