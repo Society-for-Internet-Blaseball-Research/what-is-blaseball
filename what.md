@@ -18,3 +18,12 @@
 
 * Blaseball is the best because it's the only sport where I have to look up which player's the dog and which player's the human.
   [Cat Manning (@catacalypto)](https://twitter.com/catacalypto/status/1299757238102286336)
+
+* Blaseball is sports for people who say "sportsball".
+  [Sokka shot first](https://www.metafilter.com/191011/Mastery-of-blaseball-is-in-the-blood-And-the-peanuts)
+  
+* Blaseball is for everyone, belongs to everyone, and loves everyone.
+  [Brian C. Bell](https://www.outsports.com/2020/9/2/21409945/blaseball-game-band-lgbt-inclusion-mlb-nba-baseball-splort-landry-violence)
+  
+* Blaseball is both simple and also one of the most confusing games I’ve ever played.
+  [Dillon Skiffington](https://www.fanbyte.com/guides/blaseball-tips-guide-8-things-the-game-doesnt-tell-you/)
